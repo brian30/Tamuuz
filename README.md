@@ -1,1 +1,1 @@
-#When the COVID-19 pandemic erapted, Tamuuz restaurant decided to go online. whereby, our customers could order our auspacious dishes online and get them delivers at there doorsteps within the Municipality.
+#When the COVID-19 pandemic erapted, Tamuuz restaurant decided to go online. whereby, our customers could order our auspacious dishes online and get them delivered at there doorsteps within the Municipality.
